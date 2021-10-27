@@ -1,0 +1,3 @@
+- 👋 Hola soy @Alondra0607
+- 👀 I’m interested in  aprender
+- 🌱 I’m currently learning  a programar
